@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Fresher <br>I'm Compelet Data Science cource <br>
+I'm Prathmesh More <br> Data science AI/Ml | Data Analyst | Business analyst | Proficient in Power BI, Python, SQL & ML | Passionate about Data - Driven Insights <br>
 
 
 ## 🌐 Socials:
